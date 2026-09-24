@@ -11,4 +11,5 @@ These charts and KPIs establish a foundation for understanding the overall perfo
  2. Top ten Authors
  3. Genre distribution
  4. Rating vs Reviews
-[LINKDIN](linkedin.com/in/ifechukwu-anosike-ba7294385)
+    
+[LINKEDIN @ Anosike Ifechukwu](https://WWW.linkedin.com/in/ifechukwu-anosike-ba7294385)
